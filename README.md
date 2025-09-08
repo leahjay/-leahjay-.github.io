@@ -1,2 +1,2 @@
 # -leahjay-.github.io
-Trip to Aotearoa
+Website to share photos, drawings, lists & words
